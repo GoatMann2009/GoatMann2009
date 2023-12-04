@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GoatMann2009
+- 👀 I’m interested in coding and games
+- 💞️ I’m looking to collaborate on any problems in code
+- 📫 How to reach me Gauthier.Mann@icloud.com
